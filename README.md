@@ -8,7 +8,7 @@
 
 - 📚 Currently diving deep into Frontend technologies while exploring the exciting world of Backend development.
 - 🎯 Future Goals: Master new tools, bring ideas to life, and contribute to meaningful projects.
-- 📩 You can reach me at zyzz_448@hotmail.com
+- 📩 You can reach me at efrexz448@outlook.com
 - 🔍 Actively seeking a new job opportunity—check out MY RESUME.
 - 💪🏼  Passionate about technology and fitness—balance is key!
 <br>
